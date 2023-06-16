@@ -1,5 +1,1 @@
-i do java and c# 
-
-he/him
-
-hacker god
+i do java and c#
